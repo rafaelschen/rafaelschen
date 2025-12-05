@@ -21,5 +21,5 @@ Atualmente trabalho na GM Financial, onde atuo com análise de dados, decisões 
 ---
 
 ## 📬 Contato
-📧 **Email:** rmschen27@gmail.com
+📧 **Email:** rmschen27@gmail.com  
 🔗 **LinkedIn:** linkedin.com/in/rafael-schen-3a5a07213/
